@@ -32,7 +32,60 @@ Elimuhub is Nairobi's leading provider of personalized tuition and homeschooling
 
 ---
 
+# Our Services
+## Elimuhub Tuition and Homeschooling: Empowering Education Across Kenya
+
+At **Elimuhub Tuition and Consultants**, we are committed to providing exceptional educational services to students and parents across Kenya. Since 2017, we have been a trusted name in tutoring, homeschool support, and educational consultancy, offering personalized solutions tailored to meet the unique needs of each learner.
+
+---
+
 ## Our Services
+
+### 1. **Home and After-School Tutoring**
+- **Short-term home tutors:** Ideal for exam preparation, remedial work, or extra help in specific subjects.
+- **Part-time after-school tutoring:** Available across Kenya for students needing academic reinforcement.
+
+### 2. **Private One-on-One Tutoring**
+We provide personalized tutoring sessions:
+- For all subjects
+- Offered at **hourly, weekly, or monthly rates**
+- Available in **all Nairobi estates**
+
+### 3. **Specialized Curriculum Support**
+Our tutors are experienced in a wide range of curricula:
+- **IGCSE**
+- **IB (International Baccalaureate)**
+- **American K-2 Curriculum**
+- **British National Curriculum**
+- **8-4-4, CBC**
+- **KCPE and KCSE preparation**
+- **Adult Education**
+
+### 4. **Additional Services**
+We also assist with:
+- **Students' placement and admissions consultancy**
+- **Teacher recruitment for schools**
+- **School marketing and advertising services**
+
+---
+
+## Why Choose Elimuhub?
+
+- **No Booking or Registration Fees:** Accessible and affordable education for everyone.  
+- **Proven Success:** With years of experience since 2017, we have earned a reputation for excellence.  
+- **Top-Rated Service:** We’re proud of our **5-star rating on Google**, backed by glowing reviews from satisfied clients.  
+
+---
+
+![Elimuhub Students Tutoring Sessions](https://i.postimg.cc/dtM4CR4d/Elimuhub-students-tuition-session.jpg)
+
+---
+**Elimuhub Education Consultants**—your trusted partner in academic success and educational excellence.
+
+---
+
+Let me know if you'd like further enhancements or additional details!
+ 
 We offer a diverse portfolio of educational programs tailored to meet the needs of students, educators, and institutions. Our key services include:
 
 ### Personalized Tutoring
